@@ -1,0 +1,1 @@
+# SoruBil-Gizlilik-Politikas-
